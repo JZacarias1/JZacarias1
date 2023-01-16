@@ -1,3 +1,6 @@
+![](https://komarev.com/ghpvc/?username=JZacarias1&color=blue&label=Visitors)
+
+
 ### Hello! I'm Juan Zacarias👋
 
 
